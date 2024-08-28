@@ -5,7 +5,7 @@
 
 - 📫 How to reach me
 ✨ Email: **yasaswinibollineni25@gmail.com**
-✨ LinkedIn:
+✨ LinkedIn:**https://www.linkedin.com/in/yasaswini-bollineni-4b6a00243/**
 Personal website or blog: **yasaswini25.blogspot.com**
 
 - 😄 Pronouns:She/Her
